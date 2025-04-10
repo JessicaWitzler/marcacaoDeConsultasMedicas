@@ -18,4 +18,5 @@
 
 ### Aula: 03/04/2025
 
-![Uploading image.png…]()
+![image](https://github.com/user-attachments/assets/744078bf-8a67-4bbf-aeee-8cbaf69c3c76)
+
